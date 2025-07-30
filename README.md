@@ -1,0 +1,1 @@
+# sharon-osbourne-case-study
